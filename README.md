@@ -84,10 +84,24 @@
 ###  STAR Reflection
 **S**ituation:  I had to prepare a short slide show to prove my understanding of several ideas in business communication.
 **T**ask: I needed to provide brief answers about such topics as the purpose of business correspondence, nonverbal behavior and formal language, tone in business email, and protocol for virtual meetings.
+
 **A**ction:  I reviewed my materials, researched soundly and organized the slides in a manner that is clear and without misunderstanding. I attempted to make all of my responses contain both good communication practice as well as practical application in the work place.
+
 **R**esult: I submitted the presentation on time, which illustrated my professional writing skills and how to apply what I have learned in a business environment.
 
+---
 
+##  7. Interview skills
+
+### Evidence
+![image](https://github.com/user-attachments/assets/e5166ab4-f1d7-46d1-b101-765594190b3f)
+
+###  STAR Reflection
+**S**ituation: I needed to finish a quiz that tested my understanding of effective interview skills.
+**T**ask: My goal was to show my knowledge of interview preparation and best practices.
+**A**ction:This included understanding the purpose of interviews, answering important questions, and using professional techniques like the CAR method. I reviewed course materials on interview etiquette. I researched common interview strategies. All the questions were answered, giving examples of how I would respond when it comes to real interview situation.
+
+**R**esult: I successfully completed the quiz. This process increased my confidence in handling interview questions, presenting myself well, and preparing for future job opportunities.
 
 
 
