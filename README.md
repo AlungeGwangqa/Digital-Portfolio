@@ -99,9 +99,59 @@
 ###  STAR Reflection
 **S**ituation: I needed to finish a quiz that tested my understanding of effective interview skills.
 **T**ask: My goal was to show my knowledge of interview preparation and best practices.
+
 **A**ction:This included understanding the purpose of interviews, answering important questions, and using professional techniques like the CAR method. I reviewed course materials on interview etiquette. I researched common interview strategies. All the questions were answered, giving examples of how I would respond when it comes to real interview situation.
 
 **R**esult: I successfully completed the quiz. This process increased my confidence in handling interview questions, presenting myself well, and preparing for future job opportunities.
+
+---
+
+## 8. Mock interview 
+
+### Evidence
+(https://github.com/AlungeGwangqa/Mock-Interview/blob/main/WhatsApp%20Video%202025-03-21%20at%2011.mp4)
+
+###  STAR Reflection
+**S**ituation: I had to complete a mock interview as part of my work readiness assessment.
+
+**T**ask:  I aimed to use the interview skills I had learned. This included staying professional, showing confidence, and communicating clearly during the interview.
+
+**A**ction:  I prepared by going over common interview questions and practicing my answers with the CAR method. I made sure my tone, posture, and body language showed confidence and enthusiasm. Then, I recorded and submitted my mock interview video.
+
+**R**esult: The mock interview helped me find areas where I could improve. It also increased my confidence for real interviews. I showed that I could communicate effectively and professionally in a formal interview setting.
+ 
+---
+
+## 9. Professional networking
+
+### Evidence
+![image](https://github.com/user-attachments/assets/b1c9d2a1-4211-421a-aeaa-f65b81a80e31)
+
+###  STAR Reflection
+**S**ituation: I needed to finish a short assessment on professional networking for my business communication class.
+
+**T**ask: My aim was to show my understanding of the main ideas of professional networking, such as making connections, avoiding common mistakes, and using the “golden rule” of networking effectively.
+
+**A**ction:  After I was done studying the topics, I thought about the best practices for building and keeping a professional network, and completed the assessment by answering questions on networking events, etiquette, and the purpose of professional networking.
+
+**R**esult: Then I finished the assessment which helped as I could see how important professional networking is. It reinforced strategies for making worthwhile connections and boosted my confidence in using networking principles when it comes to real-life professional situations.
+
+---
+
+## 10. Workplace etiqutte
+
+### Evidence
+![image](https://github.com/user-attachments/assets/10729295-7c83-4e35-a3f1-3c7260c7e624)
+
+###  STAR Reflection
+**S**ituation:  I had to complete an assessment regarding workplace etiquette as a part of my business communication coursework.
+
+**T**ask: The objective was to exhibit my comprehension of a professional/workplace behavior which also included punctuality, confidential handling of information, giving personal devices a proper use, and responding to challenging communications.
+
+**A**ction: After going through each scenario thoroughly, and reflected on the best practices, whilst I responded to the questions about arrival times, personal phone use, managing sensitive information, and being professional in email communications. I was able to understand the workplace etiquette better.
+
+**R**esult: Going through the assessment has improved my understanding of the workplace expectations, enabled me to recognize strategies to keep up my professionalism, and increased my confidence in dealing with workplace interactions in a respectful and efficient manner. 
+
 
 
 
