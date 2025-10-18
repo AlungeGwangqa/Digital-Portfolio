@@ -74,4 +74,21 @@
 **A**ction: I double-checked requirements, verified the file, and submitted ahead of time.  
 **R**esult: The submission was successful and acknowledged via email.
 
+---
+
+##  6. Business Communication
+
+### Evidence
+![image](https://github.com/user-attachments/assets/d1144c76-2d7f-4a3a-9de7-e88ebbc7c570)
+
+###  STAR Reflection
+**S**ituation:  I had to prepare a short slide show to prove my understanding of several ideas in business communication.
+**T**ask: I needed to provide brief answers about such topics as the purpose of business correspondence, nonverbal behavior and formal language, tone in business email, and protocol for virtual meetings.
+**A**ction:  I reviewed my materials, researched soundly and organized the slides in a manner that is clear and without misunderstanding. I attempted to make all of my responses contain both good communication practice as well as practical application in the work place.
+**R**esult: I submitted the presentation on time, which illustrated my professional writing skills and how to apply what I have learned in a business environment.
+
+
+
+
+
 
